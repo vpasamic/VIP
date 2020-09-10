@@ -1,2 +1,2 @@
 # VIP
-Portfolio for Ver Isla Pasamic
+Life Portfolio for Ver Isla Pasamic.
